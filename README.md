@@ -1,6 +1,6 @@
 # My Favorite Series: *The Pitt*
 
-![The Pitt](the-pitt.jpg)
+![The Pitt](https://www.primevideo.com/detail/0NNDMY1ZJA2IUV77870P5X6EZ4)
 
 > *"A 15-hour shift in the ER, one hour per episode."*
 
